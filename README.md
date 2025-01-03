@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @DoubleeyAstrogon
 - 👀 Download Astrogon
-- 🌱 I’m currently learning Coding
+- 🌱 RAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
 
 <!---
 DoubleeyAstrogon/DoubleeyAstrogon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
